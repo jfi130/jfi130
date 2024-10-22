@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jfi130
+- 👀 I’m interested in robótica 
+- ⚡ Fun fact: futebol
